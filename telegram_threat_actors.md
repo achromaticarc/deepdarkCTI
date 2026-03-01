@@ -943,3 +943,5 @@
 |https://t.me/+3ZYKShO-lpM2NTM1|ONLINE|Escanors Official||
 |https://t.me/+kGfKy9Zl4OsyYzVl|ONLINE|scattered LAPSUS$ hunters part 8||
 |https://t.me/EvilNet3|ONLINE|EvilNet 3.0||
+|https://t.me/joinchat/SRPYpvvgUPwyY2I0|ONLINE|Evil Markhors -Dark Side of Pakistan Alliance|DDoS|
+|https://t.me/ddoswfree|ONLINE|Meows alive|DDoS|
