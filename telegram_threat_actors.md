@@ -942,3 +942,4 @@
 |https://t.me/+xKUeFc1nB89hNTM1|ONLINE|Escanors Marketplace||
 |https://t.me/+3ZYKShO-lpM2NTM1|ONLINE|Escanors Official||
 |https://t.me/+kGfKy9Zl4OsyYzVl|ONLINE|scattered LAPSUS$ hunters part 8||
+|https://t.me/EvilNet3|ONLINE|EvilNet 3.0||
